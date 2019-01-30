@@ -18,6 +18,8 @@ Your continued use of our website will be regarded as acceptance of our practice
 This policy is effective as of 30 January 2019.
 
 
+
+
 Miffed AS Terms of Service
 1. Terms
 By accessing the website at http://github.com/MiffedLyric559, you are agreeing to be bound by these terms of service, all applicable laws and regulations, and agree that you are responsible for compliance with any applicable local laws. If you do not agree with any of these terms, you are prohibited from using or accessing this site. The materials contained in this website are protected by applicable copyright and trademark law.
